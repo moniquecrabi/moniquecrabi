@@ -1,4 +1,4 @@
-### 👋 Bem-vindo ao meu cantinho digital! Sou apaixonado por tecnologia, melodias e uma boa xícara de café ☕. 
+### 👋 Bem-vindo ao meu cantinho digital! Sou apaixonada por tecnologia, melodias e uma boa xícara de café ☕. 
 
 
 
